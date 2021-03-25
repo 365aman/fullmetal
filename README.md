@@ -1,1 +1,1 @@
-Hi, I am ama kushwaha 
+Hi, I am aman kushwaha 
